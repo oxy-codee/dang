@@ -1,5 +1,5 @@
 here is my cheat that i developped its free for a short time please test it out and leave a review and tell me what to update its the best free cheat that i coded
-open steam and the cheat first and lunch fivem after then press insert
+open steam and the cheat first and lunch fivem after then press insert open as admin if dont work
 
 Preview https://streamable.com/jfhb7h
 
